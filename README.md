@@ -1,1 +1,1 @@
-https://github.com/Alt-boo/ono-tebe-nado-fd#
+https://github.com/Alt-boo/ono-tebe-nado-fd
